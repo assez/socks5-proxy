@@ -8,7 +8,7 @@
 
 ## 🚀 优众IP | 高质量专业独享代理 | SK5/L2TP稳定专线 
 
-### 官网地址，限时5折，充多少送多少  [点此注册](https://sk5ip.cn/views/login.html#?promotionCode=84F3860128214EDE8F8D80FBB2370D67) 即可免费领取3条测试线路
+### 官网地址，限时5折，充多少送多少  [点此注册](https://sk5ip.cn/views/login.html#?promotionCode=84F3860128214EDE8F8D80FBB2370D67) 即可免费领取5条测试线路
 #### 为什么选择优众代理？
 ✅**协议全面兼容**：支持Socks5/http及L2TP连接  
 ✅**独享IP不共享**：每账号独立IP，防关联更安全  
@@ -115,7 +115,7 @@
 
 ## ⚡ 天机IP | 百兆静态高速代理 | 支持游戏多开/短视频 
 
-### 官网地址，限时特惠百兆6.5元起  [点此注册](http://www.tianjiip.com/#/register?invitation=admin01&shareid=81)
+### 官网地址，限时特惠百兆6.5元起  [点此注册](http://www.tianjiip.com/#/register?invitation=admin01&shareid=81)新用户免费体验6小时
 ##### 天机代理是一家专业的IP代理服务商，致力于为企业和开发者提供提供长效稳定的数据中心IP和住宅IP，满足不同业务对IP质量和稳定性的要求
 
 
@@ -134,7 +134,7 @@
 
 家庭住宅IP：新增资源池，模拟真实用户行为，适合游戏防封等场景。
 
-注册即可免费领取一条测试线路
+
 
 
 部分线路展示
@@ -147,7 +147,7 @@
 
 ##  ☁极驰云IP | 长效静态IP，专业Socks5/L2TP协议支持 | 全国多节点 
 
-### 官网地址，限时充值就送同等金额  [点此注册](https://www.jichiy.com/views/login.html#?promotionCode=B3EA2D4FD8F24547A609F994A88FDFDF)
+### 官网地址，限时充值就送同等金额  [点此注册](https://www.jichiy.com/views/login.html#?promotionCode=B3EA2D4FD8F24547A609F994A88FDFDF)新用户免费领取3条测试线路
 ##### 极驰云是一款专注于提供稳定、高效代理IP服务的产品，特别适合游戏工作室和有网络隔离需求的用户！
 
 
