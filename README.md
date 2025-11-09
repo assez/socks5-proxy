@@ -27,7 +27,7 @@
 
 
 
-##  🐉蛟龙加速器 | 全协议支持（SOCKS5/L2TP/PPTP） | 免费试用2小时，无限切换ip 
+##  🐉蛟龙加速器 | 全协议支持（SOCKS5/L2TP/PPTP） | 免费测试2小时，无限切换ip 
 
 ### 官网地址，限时低至2.8元/月起  [点此注册](https://jiaolongip.com/user/login?p=gsyunip&code=gsy)
 ##### 蛟龙专注提供国内优质SOCKS5与L2TP代理IP资源，支持即时自助开通节点，国内地区住宅齐全。
