@@ -1,7 +1,7 @@
 ![](https://images.unsplash.com/photo-1499951360447-b19be8fe80f5?w=1200&h=400&fit=crop)
 
 #  2025代理IP推荐 | Socks5 | L2TP | 国内优质静态IP代理
-# 【按Ctrl+D可以收藏该地址，不迷路，持续更新】  
+# 【按Ctrl+D可以收藏该地址，不迷路，持续更新中】  
 
 
 
