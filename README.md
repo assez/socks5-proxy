@@ -151,7 +151,7 @@
 
 ##  ☁极驰云IP | 长效静态IP，专业Socks5/L2TP协议支持 | 全国多节点 
 
-### 官网地址，限时充值就送同等金额  [点此注册](https://www.jichiy.com/views/login.html#?promotionCode=B3EA2D4FD8F24547A609F994A88FDFDF)新用户免费领取3条测试线路
+### 官网地址，12月限时充值就送同等金额  [点此注册](https://www.jichiy.com/views/login.html#?promotionCode=B3EA2D4FD8F24547A609F994A88FDFDF)新用户免费领取3条测试线路
 ##### 极驰云是一款专注于提供稳定、高效代理IP服务的产品，特别适合游戏工作室和有网络隔离需求的用户！
 
 
