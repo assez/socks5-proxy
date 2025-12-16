@@ -74,6 +74,35 @@
 
 <hr style="height: 2px; border: none; background: linear-gradient(to right, #ff7e5f, #feb47b);"/>
 
+##  💗无双IP |  国内外全球Socks5/L2TP代理IP购买 | 稳定独享IP全球节点 
+
+
+### 官网地址 200M香港10元起 [点此注册](https://new.6nn.net/admin#/login?scope=register&inviteCode=8JzmjbeYkBZq)
+##### 无双代理提供高品质海外代理服务，采用纯净静态住宅IP，覆盖美国、日本、德国等多个国家与地区，有效帮助用户实现网络加速、隐私保护与跨境业务需求。
+
+
+## 🔥 SOCKS5代理套餐价格表：
+
+| 线路类型 | 1天 | 7天 | 30天 | 适应场景 |
+| --- | --- | --- | --- | --- |
+| 国内线路 | ¥1.5 | ¥4 | ¥6.25 | 游戏项目IP隔离 |
+| 国外精选 | ¥1.75 | ¥4.25 | ¥10 | 游戏项目IP隔离 |
+| 国外优选 | ¥1.75 | ¥4.5 | ¥12.5 | 游戏项目IP隔离 |
+| 国外住宅 | ¥3.75 | ¥10 | ¥32.5 | 游戏项目IP隔离 |
+| 国外住宅(推荐) | ¥3.75 | ¥10 | ¥30 | 游戏项目IP隔离 |
+
+
+ 
+
+
+### 真实静态住宅IP，全球多节点可选，有效避免被屏蔽。
+
+部分地区线路展示
+![](https://m.360buyimg.com/i/jfs/t202512162317/375931/38/14483/28281/694169efFba684f50/089533616b6ac8bb.png)  
+
+<hr style="height: 2px; border: none; background: linear-gradient(to right, #ff7e5f, #feb47b);"/>
+
+
 ##  🐉蛟龙加速器 | 全协议支持（SOCKS5/L2TP/PPTP） | 免费测试2小时，无限切换ip 
 
 ### 官网地址，限时低至2.8元/月起  [点此注册](https://jiaolongip.com/user/login?p=gsyunip&code=gsy)
