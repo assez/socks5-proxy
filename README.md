@@ -1,7 +1,7 @@
 ![](https://images.unsplash.com/photo-1499951360447-b19be8fe80f5?w=1200&h=400&fit=crop)
 
 #  2025代理IP推荐 | Socks5 | L2TP | 国内优质静态IP代理
-# 【按Ctrl+D可以收藏该地址，不迷路，持续更新】  
+# 【按Ctrl+D可以收藏该地址，不迷路，持续更新中】  
 
 
 
@@ -70,7 +70,7 @@
 ### 全国地区齐全，无限切换ip，固定/住宅/家宽线路丰富。
 
 部分地区线路展示
-![]([https://m.360buyimg.com/i/jfs/t202512161716/380377/18/4210/102529/69400a40F76ce3234/08955e227ffaf723.png](https://m.360buyimg.com/i/jfs/t202512162245/374541/18/15877/101685/6941628eF3de312d1/08955d62737d4f54.png))  
+![](https://m.360buyimg.com/i/jfs/t202512162245/374541/18/15877/101685/6941628eF3de312d1/08955d62737d4f54.png)  
 
 <hr style="height: 2px; border: none; background: linear-gradient(to right, #ff7e5f, #feb47b);"/>
 
