@@ -1,6 +1,6 @@
 ![](https://images.unsplash.com/photo-1499951360447-b19be8fe80f5?w=1200&h=400&fit=crop)
 
-#  2025代理IP推荐 | Socks5 | L2TP | 国内国外优质IP代理
+#  2026代理IP推荐 | Socks5 | L2TP | 国内国外优质IP代理
 # 【按Ctrl+D可以收藏该地址，不迷路，持续更新】  
 
 
@@ -10,7 +10,7 @@
 
 
 
-### 官网地址，12月限时半价，充多少送多少  [点此注册](https://sk5ip.cn/views/login.html#?promotionCode=84F3860128214EDE8F8D80FBB2370D67) 即可免费领取5条线路
+### 官网地址，2026开年限时半价，充多少送多少  [点此注册](https://sk5ip.cn/views/login.html#?promotionCode=84F3860128214EDE8F8D80FBB2370D67) 即可免费领取5条线路
 #### 为什么选择优众代理？
 ✅**协议全面兼容**：支持Socks5/http及L2TP连接  
 ✅**独享IP不共享**：每账号独立IP，防关联更安全  
@@ -32,7 +32,7 @@
 ##  🧬糖果IP | 高速稳定SOCKS5/L2TP代理IP平台 | 全国随意切换 
 
 
-### 官网地址，12月限时5折  [点此注册](http://www.tangguoip.com/register/800977)新用户免费领取5条测试线路
+### 官网地址，1月限时5折  [点此注册](http://www.tangguoip.com/register/800977)新用户免费领取5条测试线路
 ##### 糖果IP平台专注于提供高质量、易用的代理IP服务，支持**SOCKS5**和**L2TP**两种主流协议，满足您不同场景下的IP隔离需求
 
 
