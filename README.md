@@ -10,7 +10,7 @@
 
 
 
-### 官网地址，2026开年限时半价，充多少送多少  [点此注册](https://sk5ip.cn/views/login.html#?promotionCode=84F3860128214EDE8F8D80FBB2370D67) 即可免费领取5条线路
+### 官网地址，2026新年限时半价，充多少送多少  [点此注册](https://sk5ip.cn/views/login.html#?promotionCode=84F3860128214EDE8F8D80FBB2370D67) 即可免费领取5条线路
 #### 为什么选择优众代理？
 ✅**协议全面兼容**：支持Socks5/http及L2TP连接  
 ✅**独享IP不共享**：每账号独立IP，防关联更安全  
