@@ -30,7 +30,7 @@
 <hr style="height: 2px; border: none; background: linear-gradient(to right, #ff7e5f, #feb47b);"/>
 
 
-## 🌀 ST加速器 | 全客户端的高速代理 | 支持安卓/苹果/电脑使用 
+## 🌀 ST加速器 | app一键切换 | 支持安卓/苹果/电脑使用 
 
 ### 官网地址，新用户可领10元余额，首月2元  [点此注册](www.souta.com/?c=96920198) 
 
